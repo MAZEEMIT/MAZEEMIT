@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MAZEEMIT
+- 👀 I’m interested in open source softwares and testing.
+- 🌱 I’m currently learning how to get around on github
+- 💞️ I’m looking for people to share their softwares and i'll send feedback on how it works.
+- 📫 How to reach me on X TheIronFistJin or here on github.
+- 😄 Pronouns: i'm straight so HE
+- ⚡ Fun fact: i'm super easy to get to know...
